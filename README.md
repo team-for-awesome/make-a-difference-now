@@ -1,4 +1,5 @@
 # Make a difference now
+- Smile sincerely
 - Ask people if they need help
 - Pick up trash
 - Let people exit the train/bus before you enter
