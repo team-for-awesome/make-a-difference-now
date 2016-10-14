@@ -6,3 +6,6 @@
 - Don't put your bag on the seat next to you so people can sit
 - Offer your seat to someone that needs it more
 - Help people carry their groceries
+- Eat vegetarian
+- Buy products without plastic packaging (e.g. bar soap)
+- Meditate on compassion (for yourself and others)
