@@ -1,4 +1,5 @@
 # Make a difference now
+- Give people the benefit of a doubt
 - Walk and use public transportation
 - Don't fly
 - Smile sincerely
