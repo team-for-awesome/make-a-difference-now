@@ -1,4 +1,5 @@
 # Make a difference now
+- Treat animals with the same respect you would show to a human
 - Give people the benefit of a doubt
 - Walk and use public transportation
 - Don't fly
