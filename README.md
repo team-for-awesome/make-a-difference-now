@@ -4,7 +4,7 @@
     - Eat vegetarian (even once a week is a good start)
 - Give people the benefit of a doubt
 - Walk and use public transportation
-- Don't fly
+- Don't fly (https://en.wikipedia.org/wiki/Environmental_impact_of_aviation)
 - Smile sincerely
 - Ask people if they need help
 - Pick up trash
