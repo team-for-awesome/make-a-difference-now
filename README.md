@@ -1,4 +1,6 @@
 # Make a difference now
+- Walk and use public transportation
+- Don't fly
 - Smile sincerely
 - Rescue animals from the animal shelter
 - Ask people if they need help
