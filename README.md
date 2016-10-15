@@ -1,7 +1,7 @@
 # Make a difference now
 - Treat animals with the same respect you would show to a human
     - Rescue animals from the animal shelter and take good care of them
-    - Eat vegetarian
+    - Eat vegetarian (even once a week is a good start)
 - Give people the benefit of a doubt
 - Walk and use public transportation
 - Don't fly
