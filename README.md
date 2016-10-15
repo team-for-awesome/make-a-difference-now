@@ -4,7 +4,7 @@
 - Walk and use public transportation
 - Don't fly
 - Smile sincerely
-- Rescue animals from the animal shelter
+- Rescue animals from the animal shelter and take good care of them
 - Ask people if they need help
 - Pick up trash
 - Let people exit the train/bus before you enter
