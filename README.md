@@ -16,3 +16,5 @@
 - Buy products without plastic packaging (e.g. bar soap)
 - Meditate on compassion (for yourself and others)
 - Donate Money to a charity (e.g. Greenpeace)
+- Safe energy
+    - Don't celebrate earth hour only once a year but make it a daily practice
