@@ -1,5 +1,7 @@
 # Make a difference now
 
+[![Join the chat at https://gitter.im/hhirsch/make-a-difference-now](https://badges.gitter.im/hhirsch/make-a-difference-now.svg)](https://gitter.im/hhirsch/make-a-difference-now?utm_source=badge&utm_medium=badge&utm_campaign=pr-badge&utm_content=badge)
+
 ## Sentient Beeings
 - Treat animals with the same respect you would show to a human
     - Rescue animals from the animal shelter and take good care of them
