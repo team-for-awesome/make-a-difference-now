@@ -1,6 +1,8 @@
 # Make a difference now
 
 [![Join the chat at https://gitter.im/hhirsch/make-a-difference-now](https://badges.gitter.im/hhirsch/make-a-difference-now.svg)](https://gitter.im/hhirsch/make-a-difference-now?utm_source=badge&utm_medium=badge&utm_campaign=pr-badge&utm_content=badge)
+[![Creative Commons License](https://i.creativecommons.org/l/by-nc-sa/4.0/80x15.png)](http://creativecommons.org/licenses/by-nc-sa/4.0/)  
+This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
 
 ## Sentient Beeings
 - Treat animals with the same respect you would show to a human
