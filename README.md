@@ -4,6 +4,10 @@
 [![Creative Commons License](https://i.creativecommons.org/l/by-nc-sa/4.0/80x15.png)](http://creativecommons.org/licenses/by-nc-sa/4.0/)  
 This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
 
+## About
+Ghandi said “You must be the change you want to see in the world.”. This is a list for those that agree with that
+saying. For people that are tired of blaming others and are ready to see how they alone have the power to change anything.
+
 ## Sentient Beeings
 - Treat animals with the same respect you would show to a human
     - Rescue animals from the animal shelter and take good care of them
