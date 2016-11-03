@@ -18,6 +18,8 @@ This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareA
 - Let people exit the train/bus before you enter, don't stand in their way
 
 ## Nature
+- Buy second hand
+- Abstain from buying anything when possible
 - Pick up trash
 - Walk and use public transportation
 - Don't fly (https://en.wikipedia.org/wiki/Environmental_impact_of_aviation)
