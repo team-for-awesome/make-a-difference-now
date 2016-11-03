@@ -8,7 +8,7 @@ This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareA
 
 ## About
 Be the change you want to see. This is a list for those that agree with that
-saying. For people that are tired of blaming others and are ready to see how they alone have the power to change anything.
+saying. For people that are tired of blaming others and are ready to see how they alone have the power to create change.
 
 ## Sentient Beeings
 - Treat animals with the same respect you would show to a human
