@@ -36,3 +36,4 @@ saying. For people that are tired of blaming others and are ready to see how the
 - Save energy
     - Don't celebrate earth hour only once a year but make it a daily practice
 - Shave using a straight razor or safety razor use bars of shaving foam, not cans
+- Brush your teeth with miswak or a compostable toothbrush made out of wood or bamboo
