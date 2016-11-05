@@ -35,3 +35,4 @@ saying. For people that are tired of blaming others and are ready to see how the
 - Donate Money to a charity (e.g. Greenpeace) see [Awesome List of Charities](https://github.com/hhirsch/awesome-charities)
 - Save energy
     - Don't celebrate earth hour only once a year but make it a daily practice
+- Shave using a straight razor or safety razor use bars of shaving foam, not cans
