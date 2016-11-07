@@ -16,7 +16,6 @@ saying. For people that are tired of blaming others and are ready to see how the
     - Eat vegetarian (even once a week is a good start)
 - Give people the benefit of a doubt
 - Act kind towards other people
-
     - Ask people if they need help
     - Smile sincerely
     - Make eye contact with shop assistants and take the time to say thank you
