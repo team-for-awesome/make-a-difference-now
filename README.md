@@ -11,18 +11,19 @@ Be the change you want to see. This is a list for those that agree with that
 saying. For people that are tired of blaming others and are ready to see how they alone have the power to create change.
 
 ## Sentient Beeings
-- Treat animals with the same respect you would show to a human
+- Treat animals with unlimited respect
     - Rescue animals from the animal shelter and take good care of them
     - Eat vegetarian (even once a week is a good start)
 - Give people the benefit of a doubt
-- Smile sincerely
-- Ask people if they need help
-- Make eye contact with shop assistants and take the time to say thank you
-- Don't put your bag on the seat next to you so people can sit
-- Offer your seat to someone that needs it more
-- Help people carry their groceries
-- Let people exit the train/bus before you enter, don't stand in their way
+- Act kind towards other people
 
+    - Ask people if they need help
+    - Smile sincerely
+    - Make eye contact with shop assistants and take the time to say thank you
+    - Don't put your bag on the seat next to you so people can sit
+    - Help people carry their groceries  
+    - Offer your seat to someone that needs it more
+    - Let people exit the train/bus before you enter, don't stand in their way
 ## Nature
 - Remove Trash
     - Abstain from buying anything when possible
