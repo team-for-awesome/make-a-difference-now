@@ -24,9 +24,12 @@ saying. For people that are tired of blaming others and are ready to see how the
 - Let people exit the train/bus before you enter, don't stand in their way
 
 ## Nature
-- Buy second hand
-- Abstain from buying anything when possible
-- Pick up trash
+- Remove Trash
+    - Abstain from buying anything when possible
+    - Buy second hand
+    - Pick up trash
+    - Shave using a straight razor or safety razor use bars of shaving foam, not cans
+    - Brush your teeth with miswak or a compostable toothbrush made out of wood or bamboo    
 - Walk and use public transportation
 - Don't fly (https://en.wikipedia.org/wiki/Environmental_impact_of_aviation)
 - Buy products without plastic packaging (e.g. bar soap)
@@ -35,5 +38,4 @@ saying. For people that are tired of blaming others and are ready to see how the
 - Donate Money to a charity (e.g. Greenpeace) see [Awesome List of Charities](https://github.com/hhirsch/awesome-charities)
 - Save energy
     - Don't celebrate earth hour only once a year but make it a daily practice
-- Shave using a straight razor or safety razor use bars of shaving foam, not cans
-- Brush your teeth with miswak or a compostable toothbrush made out of wood or bamboo
+
