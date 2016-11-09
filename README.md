@@ -25,6 +25,7 @@ saying. For people that are tired of blaming others and are ready to see how the
     - Help people carry their groceries  
     - Offer your seat to someone that needs it more
     - Let people exit the train/bus before you enter, don't stand in their way
+    
 ## Nature
 - Remove Trash
     - Abstain from buying anything when possible
