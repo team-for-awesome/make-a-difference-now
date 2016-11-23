@@ -27,7 +27,8 @@ saying. For people that are tired of blaming others and are ready to see how the
     - Let people exit the train/bus before you enter, don't stand in their way
 - Share
     - Share and borrow tools
-    - Provide services for and consume services from your neighbours    
+    - Provide services for and consume services from your neighbours
+    
 ## Nature
 - Remove Trash
     - Abstain from buying anything when possible
