@@ -28,7 +28,10 @@ saying. For people that are tired of blaming others and are ready to see how the
 - Share
     - Share and borrow tools
     - Provide services for and consume services from your neighbours
-    
+- Use your skill for good
+    - Stick to a strict code of work ethics
+    - Give your knowledge and skill free for good causes
+
 ## Nature
 - Remove Trash
     - Abstain from buying anything when possible
