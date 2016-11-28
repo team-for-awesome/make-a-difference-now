@@ -31,7 +31,8 @@ saying. For people that are tired of blaming others and are ready to see how the
 - Use your skill for good
     - Stick to a strict code of work ethics
     - Give your knowledge and skill free for good causes
-
+- Donate Money to a charity see [Awesome List of Charities](https://github.com/hhirsch/awesome-charities)
+    - Gift Donations for birthdays and christmas
 ## Nature
 - Remove Trash
     - Abstain from buying anything when possible
