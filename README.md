@@ -48,5 +48,5 @@ saying. For people that are tired of blaming others and are ready to see how the
 - Go on a fast
 - Donate Money to a charity (e.g. Greenpeace) see [Awesome List of Charities](https://github.com/hhirsch/awesome-charities)
 - Save energy
-    - Don't celebrate earth hour only once a year but make it a daily practice
+    - Don't celebrate earth hour once a year but make it a daily practice
 
