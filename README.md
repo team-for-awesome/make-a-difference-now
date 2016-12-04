@@ -15,7 +15,7 @@ saying. For people that are tired of blaming others and are ready to see how we 
     - Rescue animals from the animal shelter and take good care of them
     - Eat vegetarian (even once a week is a good start)
 - Give people the benefit of a doubt
-    - Focus on what you have in common not on the differences
+    - Focus on what we have in common not on the differences
     - Try to start each interaction with a blank slate
 - Act kind towards other people
     - Ask people if they need help
@@ -23,14 +23,14 @@ saying. For people that are tired of blaming others and are ready to see how we 
     - Make eye contact with shop assistants and take the time to say thank you
     - Don't put my bag on the seat next to me so people can sit
     - Help people carry their groceries  
-    - Offer your seat to someone that needs it more
+    - Offer my seat to someone that needs it more
     - Let people exit the train/bus before I enter, don't stand in their way
 - Share
     - Share and borrow tools
     - Provide services for and consume services from your neighbours
 - Use your skill for good
     - Stick to a strict code of work ethics
-    - Give your knowledge and skill free for good causes
+    - Give my knowledge and skill free for good causes
 - Donate Money to a charity see [Awesome List of Charities](https://github.com/hhirsch/awesome-charities)
     - Gift Donations for birthdays and christmas
     
@@ -40,7 +40,7 @@ saying. For people that are tired of blaming others and are ready to see how we 
     - Buy second hand
     - Pick up trash
     - Shave using a straight razor or safety razor use bars of shaving foam, not cans
-    - Brush your teeth with miswak or a compostable toothbrush made out of wood or bamboo    
+    - Brush my teeth with miswak or a compostable toothbrush made out of wood or bamboo    
 - Walk and use public transportation
 - Don't fly (https://en.wikipedia.org/wiki/Environmental_impact_of_aviation)
 - Buy products without plastic packaging (e.g. bar soap)
