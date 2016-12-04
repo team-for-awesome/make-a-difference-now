@@ -7,7 +7,7 @@
 This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
 
 ## About
-Be the change you want to see. This is a list for those that agree with that
+I want to be the change that I want to see. This is a list for those that agree with that
 saying. For people that are tired of blaming others and are ready to see how we alone have the power to create change.
 
 ## Sentient Beeings
@@ -21,10 +21,10 @@ saying. For people that are tired of blaming others and are ready to see how we 
     - Ask people if they need help
     - Smile sincerely
     - Make eye contact with shop assistants and take the time to say thank you
-    - Don't put your bag on the seat next to you so people can sit
+    - Don't put my bag on the seat next to me so people can sit
     - Help people carry their groceries  
     - Offer your seat to someone that needs it more
-    - Let people exit the train/bus before you enter, don't stand in their way
+    - Let people exit the train/bus before I enter, don't stand in their way
 - Share
     - Share and borrow tools
     - Provide services for and consume services from your neighbours
