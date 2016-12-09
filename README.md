@@ -2,6 +2,7 @@
 
 [![Join the chat at https://gitter.im/hhirsch/make-a-difference-now](https://badges.gitter.im/hhirsch/make-a-difference-now.svg)](https://gitter.im/hhirsch/make-a-difference-now?utm_source=badge&utm_medium=badge&utm_campaign=pr-badge&utm_content=badge)
 [![Download as PDF](https://img.shields.io/badge/Download-PDF-brightgreen.svg)](https://github-pdf.herokuapp.com/hhirsch/make-a-difference-now/blob/master/README.pdf)
+[![Visit on Github](https://img.shields.io/badge/Visit_on-Github-brightgreen.svg)](https://github.com/team-for-awesome/make-a-difference-now)
 
 [![Creative Commons License](https://i.creativecommons.org/l/by-nc-sa/4.0/88x31.png)](http://creativecommons.org/licenses/by-nc-sa/4.0/)  
 This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
