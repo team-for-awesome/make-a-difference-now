@@ -41,7 +41,8 @@ saying. For people that are tired of blaming others and are ready to see how we 
     - Buy second hand
     - Pick up trash
     - Shave using a straight razor or safety razor use bars of shaving foam, not cans
-    - Brush my teeth with miswak or a compostable toothbrush made out of wood or bamboo    
+    - Brush my teeth with miswak or a compostable toothbrush made out of wood or bamboo
+    - Buy clothes second hand and give old clothes away
 - Walk and use public transportation
 - Don't fly (https://en.wikipedia.org/wiki/Environmental_impact_of_aviation)
 - Buy products without plastic packaging (e.g. bar soap)
