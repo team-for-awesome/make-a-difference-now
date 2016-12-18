@@ -16,6 +16,7 @@ saying. For people that are tired of blaming others and are ready to see how we 
     - Rescue animals from the animal shelter and take good care of them
     - Eat vegetarian (even once a week is a good start)
 - Give people the benefit of a doubt
+    - Don't jump to conclusions, realy get to know a person
     - Focus on what we have in common not on the differences
     - Try to start each interaction with a blank slate
 - Act kind towards other people
