@@ -11,10 +11,13 @@ This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareA
 I want to be the change that I want to see. I don't want to blame others and I am ready to see how I alone have the power to create change.
 
 ## Sentient Beeings
-- Treating animals with unlimited respect
-    - Rescue animals from the animal shelter and take good care of them
-    - Eat vegetarian (even once a week is a good start)
-- Giving people the benefit of a doubt
+- I solemn pledge to treat animals with unlimited respect
+    - I will adopt animals from the animal shelter and take good care of them.
+    - I will eat vegetarian and/or vegan (even once a week is a good start)
+    - I will protect animals with all means at my disposal.
+    - I will not accept any animal products that might have caused suffering in the animal.
+    - I am aware of the many deaths of animals for medicine and I stay conscious of what we put them through for our benefit.
+- I will give people the benefit of a doubt
     - Don't jump to conclusions, realy get to know a person
     - Focus on what we have in common not on the differences
     - Try to start each interaction with a blank slate
