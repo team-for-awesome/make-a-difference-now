@@ -11,7 +11,7 @@ This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareA
 I want to be the change that I want to see. I don't want to blame others and I am ready to see how I alone have the power to create change.
 
 ## Sentient Beeings
-- I solemn pledge to treat animals with unlimited respect
+- I solemnly pledge to treat animals with unlimited respect
     - I will adopt animals from the animal shelter and take good care of them.
     - I will eat vegetarian and/or vegan (even once a week is a good start)
     - I will protect animals with all means at my disposal.
