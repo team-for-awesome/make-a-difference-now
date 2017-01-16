@@ -31,7 +31,7 @@ I want to be the change that I want to see. I don't want to blame others and I a
     - Let people exit the train/bus before I enter, don't stand in their way
 - I will Share
     - Share and borrow tools
-    - Provide services for and consume services from your neighbours
+    - Provide services for and consume services from my neighbours
 - I will my skill for good
     - Stick to a strict code of work ethics
     - Give my knowledge and skill free for good causes
