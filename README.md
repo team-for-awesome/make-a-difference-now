@@ -21,7 +21,7 @@ I want to be the change that I want to see. I don't want to blame others and I a
     - Don't jump to conclusions and get to know a person instead
     - Focus on what we have in common not on the differences
     - Try to start each interaction with a blank slate
-- Acting kind towards other people
+- I will act kind towards other people
     - Ask people if they need help
     - Smile sincerely
     - Make eye contact with shop assistants and take the time to say thank you
@@ -29,13 +29,13 @@ I want to be the change that I want to see. I don't want to blame others and I a
     - Help people carry their groceries  
     - Offer my seat to someone that needs it more
     - Let people exit the train/bus before I enter, don't stand in their way
-- Sharing
+- I will Share
     - Share and borrow tools
     - Provide services for and consume services from your neighbours
-- Using my skill for good
+- I will my skill for good
     - Stick to a strict code of work ethics
     - Give my knowledge and skill free for good causes
-- Donating Money to a charity see [Awesome List of Charities](https://github.com/hhirsch/awesome-charities)
+- I will Donate Money to a charity (see [Awesome List of Charities](https://github.com/hhirsch/awesome-charities))
     - Gift Donations for birthdays and christmas
     
 ## Nature
