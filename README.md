@@ -39,10 +39,10 @@ I want to be the change that I want to see. I don't want to blame others and I a
     - Gift Donations for birthdays and christmas
     
 ## Nature
-- Removing Trash
-    - Abstaining from buying anything when possible
-    - Buying second hand
-    - Picking up trash
+- I will reduce trash production and polution
+    - I will abstain from buying anything when possible
+    - I will buy second hand
+    - I will remove trash whenever I get the chance
     - Shaveing using a straight razor or safety razor use bars of shaving foam, not cans
     - Brushing my teeth with miswak or a compostable toothbrush made out of wood or bamboo
     - Buying clothes second hand and give old clothes away
