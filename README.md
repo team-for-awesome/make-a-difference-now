@@ -32,9 +32,9 @@ I want to be the change that I want to see. I don't want to blame others and I a
 - I will Share
     - Share and borrow tools
     - Provide services for and consume services from my neighbours
-- I will my skill for good
-    - Stick to a strict code of work ethics
-    - Give my knowledge and skill free for good causes
+- I will use my skill for good
+    - I will Stick to a strict code of work ethics
+    - I will give my knowledge and skill free for good causes
 - I will Donate Money to a charity (see [Awesome List of Charities](https://github.com/hhirsch/awesome-charities))
     - Gift Donations for birthdays and christmas
     
