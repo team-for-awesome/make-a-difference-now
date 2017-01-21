@@ -15,12 +15,12 @@ I want to be the change that I want to see. I don't want to blame others and I a
     - I will adopt animals from the animal shelter and take good care of them.
     - I will eat vegetarian and/or vegan (even once a week is a good start)
     - I will protect animals with all means at my disposal.
-    - I will not accept any animal products that might have caused suffering in the animal.
+    - I will not accept animal products that might have caused suffering in the animal.
     - I am aware of the many deaths of animals for medicine and I stay conscious of what we put them through for our benefit.
 - I will give people the benefit of a doubt
     - I will not jump to conclusions and I will try to understand a motivation
-    - Focus on what we have in common not on the differences
-    - Try to start each interaction with a blank slate
+    - I will focus on what we have in common not on the differences
+    - I will start each interaction with a blank slate
 - I will act kind towards other people
     - Ask people if they need help
     - Smile sincerely
