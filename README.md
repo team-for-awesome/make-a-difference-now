@@ -8,7 +8,7 @@
 This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
 
 ## About
-I want to be the change that I want to see. I don't want to blame others and I am ready to see how I alone have the power to create change.
+I want to be the change that I want to see.
 
 ## Sentient Beeings
 - I solemnly pledge to treat animals with unlimited respect
