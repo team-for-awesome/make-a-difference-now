@@ -13,7 +13,7 @@ I want to be the change that I want to see.
 ## Sentient Beeings
 - I solemnly pledge to treat sentient beeings with unlimited respect
     - I will adopt animals from the animal shelter and take good care of them.
-    - I will eat vegetarian and/or vegan one or all meals of the week
+    - I will eat vegetarian and/or vegan for one or all meals of the week
     - I will protect animals with all means at my disposal.
     - I will not accept animal products that might have caused suffering in the animal.
     - I am aware of the many deaths of animals for medicine and I stay conscious of what we put them through for our benefit.
