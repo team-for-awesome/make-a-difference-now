@@ -13,7 +13,7 @@ I will also accept that a lot of things can not be changed easily.
 I am doing all of this not forgetting that everything is impermanent, even our species and universe. And that thus none
 of what I do will have a permanent effect.
 
-## Sentient Beeings
+## Compassion
 - I solemnly pledge to treat sentient beeings with unlimited respect
     - I will adopt animals from the animal shelter and take good care of them.
     - I will eat vegetarian and/or vegan for one or all meals of the week
