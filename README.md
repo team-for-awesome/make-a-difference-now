@@ -7,8 +7,11 @@
 [![Creative Commons License](https://i.creativecommons.org/l/by-nc-sa/4.0/88x31.png)](http://creativecommons.org/licenses/by-nc-sa/4.0/)  
 This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareAlike 4.0 International License](http://creativecommons.org/licenses/by-nc-sa/4.0/).
 
-## About
-I want to be the change that I want to see.
+I want to improve the conditions around me right now. For that I consider what is in my actual power.
+I will not be bitter or sarcastic but will see hardship as a challenge.
+I will also accept that a lot of things can not be changed easily.
+I am doing all of this not forgetting that everything is impermanent, even our species and universe. And that thus none
+of what I do will have a permanent effect.
 
 ## Sentient Beeings
 - I solemnly pledge to treat sentient beeings with unlimited respect
