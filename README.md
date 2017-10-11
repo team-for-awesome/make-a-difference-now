@@ -47,7 +47,7 @@ I want to be the change that I want to see.
     - Brushing my teeth with miswak or a compostable toothbrush made out of wood or bamboo
     - Buying clothes second hand and give old clothes away
 - Walking and using public transportation
-- Don't fly (https://en.wikipedia.org/wiki/Environmental_impact_of_aviation)
+- Don't fly [(impact of aviation)](https://en.wikipedia.org/wiki/Environmental_impact_of_aviation)
 - Buying products without plastic packaging (e.g. bar soap)
 - Meditating on compassion (for yourself and others)
 - Going on a fast
