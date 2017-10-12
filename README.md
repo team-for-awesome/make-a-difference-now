@@ -18,7 +18,7 @@ of what I do will have a permanent effect.
     - I will adopt animals from the animal shelter and take good care of them.
     - I will eat vegetarian and/or vegan for one or all meals of the week
     - I will protect animals with all means at my disposal.
-    - I will not accept animal products that might have caused suffering in the animal.
+    - I will not aquire products that might have caused suffering
     - I am aware of the many deaths of animals for medicine and I stay conscious of what we put them through for our benefit.
 - I will give people the benefit of a doubt
     - I will not jump to conclusions and I will try to understand a motivation
