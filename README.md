@@ -13,6 +13,10 @@ I will also accept that a lot of things can not be changed easily.
 I am doing all of this not forgetting that everything is impermanent, even our species and universe. And that thus none
 of what I do will have a permanent effect.
 
+## Transmission
+Tell other people how they can make a difference and the positive effects will cascade around the globe.
+This is why transmission is the most important item on this list.
+
 ## Compassion
 - I solemnly pledge to treat sentient beeings with unlimited respect
     - I will adopt animals from the animal shelter and take good care of them.
