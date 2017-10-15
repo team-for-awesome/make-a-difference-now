@@ -14,8 +14,9 @@ I am doing all of this not forgetting that everything is impermanent, even our s
 of what I do will have a permanent effect.
 
 ## Transmission
-Tell other people how they can make a difference and the positive effects will cascade around the globe.
-This is why transmission is the most important item on this list.
+I will Tell other people how they can make a difference and the positive effects will cascade around the globe.
+This is why transmission is the most important item on this list. I am aware that my encouragment will only have 
+an effect if I am non-intrusive.
 
 ## Compassion
 - I solemnly pledge to treat sentient beeings with unlimited respect
