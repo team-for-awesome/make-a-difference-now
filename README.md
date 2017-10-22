@@ -12,6 +12,7 @@ I will not be bitter or sarcastic but will see hardship as a challenge.
 I will also accept that a lot of things can not be changed easily.
 I am doing all of this not forgetting that everything is impermanent, even our species and universe. And that thus none
 of what I do will have a permanent effect.
+I will not use that as an excuse to waive my right to vote, to withold my duty to sign petitions or to not get involved with charities or my community.
 
 ## Transmission
 I will Tell other people how they can make a difference and the positive effects will cascade around the globe.
