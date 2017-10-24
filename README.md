@@ -27,6 +27,7 @@ an effect if I am non-intrusive.
     - I will not aquire products that might have caused suffering
     - I am aware of the many deaths of animals for medicine and I stay conscious of what we put them through for our benefit.
 - I will give people the benefit of a doubt
+    - I will not assume bad intentions over neglect and misunderstanding ([Hanlon's razor](https://en.wikipedia.org/wiki/Hanlon%27s_razor))
     - I will not jump to conclusions and I will try to understand a motivation
     - I will focus on what we have in common not on the differences
     - I will start each interaction with a blank slate
