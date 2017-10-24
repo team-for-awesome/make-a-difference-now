@@ -43,7 +43,7 @@ an effect if I am non-intrusive.
     - Share and borrow tools
     - Provide services for and consume services from my neighbours
 - I will use my skill for good
-    - I will Stick to a strict code of work ethics
+    - I will stick to a strict code of work ethics
     - I will give my knowledge and skill free for good causes
 - I will Donate Money to a charity (see [Awesome List of Charities](https://github.com/hhirsch/awesome-charities))
     - Gift Donations for birthdays and christmas
