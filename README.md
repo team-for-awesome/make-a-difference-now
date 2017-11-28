@@ -9,13 +9,13 @@ This work is licensed under a [Creative Commons Attribution-NonCommercial-ShareA
 
 I want to improve the conditions around me right now. For that I consider what is in my actual power.
 I will not be bitter or sarcastic but will see hardship as a challenge.
-I will also accept that a lot of things can not be changed easily.
+I will accept that a lot of things are outside of my control but I won't forget that there are some things that I can control.
 I am doing all of this not forgetting that everything is impermanent, even our species and universe. And that thus none
 of what I do will have a permanent effect.
 I will not use that as an excuse to waive my right to vote, to withold my duty to sign petitions or to not get involved with charities or my community.
 
 ## Transmission
-I will Tell other people how they can make a difference and the positive effects will cascade around the globe.
+I will Tell other people how they can make a difference and the positive effects will cascade.
 This is why transmission is the most important item on this list. I am aware that my encouragment will only have 
 an effect if I am non-intrusive.
 
