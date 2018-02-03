@@ -15,9 +15,7 @@ of what I do will have a permanent effect.
 I will not use that as an excuse to waive my right to vote, to withold my duty to sign petitions or to not get involved with charities or my community.
 
 ## Transmission
-I will Tell other people how they can make a difference and the positive effects will cascade.
-This is why transmission is the most important item on this list. I am aware that my encouragment will only have 
-an effect if I am non-intrusive.
+I will show other people that they matter and will help them realize their potential.
 
 ## Compassion
 - I solemnly pledge to treat sentient beeings with unlimited respect
